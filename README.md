@@ -6,4 +6,5 @@ onichan uwu
 
 1. El proyecto debe estar desarrollado en p
 
-sempai
+empanadas 
+
